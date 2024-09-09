@@ -1,4 +1,4 @@
-### Hi there 👋
+![](https://web.archive.org/web/20091020135202if_/http://hk.geocities.com/moomin_area/dj.gif)
 
 <!--
 **jeanetteandrews/jeanetteandrews** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
